@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **er.chandrakant.mohanty@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1Egl3BuSg4zt0stDSnErdG3G6Wn_nx5JZicqo9h5z0XM/edit?usp=sharing](https://docs.google.com/document/d/1Egl3BuSg4zt0stDSnErdG3G6Wn_nx5JZicqo9h5z0XM/edit?usp=sharing)
+- 📄 Resume [Download](https://docs.google.com/document/d/1Egl3BuSg4zt0stDSnErdG3G6Wn_nx5JZicqo9h5z0XM/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
