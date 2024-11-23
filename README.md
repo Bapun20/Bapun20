@@ -9,11 +9,9 @@
 
 - 🌱 I’m currently learning **Python,Dsa,Web devlopment,Data analysis**
 
-- 👨‍💻 All of my projects are available at [bapun20.github.io](bapun20.github.io)
-
 - 📫 How to reach me **er.chandrakant.mohanty@gmail.com**
 
-- 📄 Resume [Download](https://docs.google.com/document/d/1Egl3BuSg4zt0stDSnErdG3G6Wn_nx5JZicqo9h5z0XM/edit?usp=sharing)
+- 📄 Resume [Download](https://drive.google.com/file/d/1AIz_pPgy3QHVNKKrWKgE0dXmK1ainlon/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
