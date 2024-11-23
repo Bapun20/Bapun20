@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **er.chandrakant.mohanty@gmail.com**
 
-- 📄 Resume [Download](https://drive.google.com/file/d/1AIz_pPgy3QHVNKKrWKgE0dXmK1ainlon/view?usp=drive_link)
+- 📄 Resume [Download](https://drive.google.com/file/d/1qIsLhgqBilhq80C978uvz6UIjzRFZrxY/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
